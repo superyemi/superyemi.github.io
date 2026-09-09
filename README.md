@@ -6,7 +6,7 @@
 
 为了避免用户因为**域名失效、网址变更或搜索不到网站**而与夜社失联，我们建立了这个回家页。
 
-### ⭐ 推荐你 Star ⭐ [本仓库](https://github.com/superyemi/yeshex)
+### ⭐ 推荐你 Star ⭐ [本仓库](https://github.com/superyemi/superyemi.github.io)
 
 当夜社域名发生变化时，我们会第一时间更新这里的最新网址。
 
@@ -33,14 +33,14 @@
 
 > 🇨🇳 **大陆用户可直接访问，地址会不定期更新**
 
-* [优化线路1](https://xn--dux8ywc-3w3kq44bjsmrzu.kangshuopengye.com/)
-* [优化线路2](https://xn--qsz38hj-5y3kslv90cry0p.kangshuopengye.com/)
-* [优化线路3](https://xn--cduzw2q-6x3lo2s8n6asnz.kangshuopengye.com/)
-* [优化线路4](https://xn--9ue57hs-9b4kw8bu00h3fg.kangshuopengye.com/)
-* [优化线路5](https://xn--s54evjk-oy2pz3cn1f2zo.chengzhiqiang18.com/)
-* [优化线路6](https://xn--c4znbh3-wq4kw39j4qcv6d.chengzhiqiang18.com/)
-* [优化线路7](https://xn--mcyhe75-4t3ku4bj04lx83a.chengzhiqiang18.com/)
-* [优化线路8](https://xn--dwfj9qk-0m2lf71gkk2by5u.chengzhiqiang18.com/)
+* [优化线路1](https://xn--pyasfzgvn-9u5pa2226ka.njrunyuan.net/)
+* [优化线路2](https://xn--75at9hq83-px4u746ktiau91a.njrunyuan.net/)
+* [优化线路3](https://xn--wt25gd6kv-pn8ojj7046ajk9d.njrunyuan.net/)
+* [优化线路4](https://xn--j53qzp8a9-9u5s331ryw7a53q.njrunyuan.net/)
+* [优化线路5](https://xn--mgsy8z65a-9m7t72d40go5p.coffeemiaomiao.com/)
+* [优化线路6](https://xn--sk7ncxftb-fv8ot48n5i5fa.coffeemiaomiao.com/)
+* [优化线路7](https://xn--93n7ka5ur-fs9om91e9i5e8h7d.coffeemiaomiao.com/)
+* [优化线路8](https://xn--m8v9af6yh-u75ne2cs69msp9a.coffeemiaomiao.com/)
 
 > ⚠️ **请认准本仓库发布的地址。** 如果某个地址无法访问，请尝试其他地址或等待更新。
 
