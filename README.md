@@ -33,14 +33,14 @@
 
 > 🇨🇳 **大陆用户可直接访问，地址会不定期更新**
 
-* [优化线路1](https://xn--ahtd84yg-q10m253ltzc0re.shanghaibz.org/)
-* [优化线路2](https://xn--u48x65hz-te1ml21krsr1p8i.shanghaibz.org/)
-* [优化线路3](https://xn--3nsx7u9k-h19m527r0r5d5eg.shanghaibz.org/)
-* [优化线路4](https://xn--563kh2b9-8c2mg7wtl2je81c.shanghaibz.org/)
-* [优化线路5](https://xn--xp7bdrnf-sb7nl86a427hjr6a.jzhtpgcsl.com/)
-* [优化线路6](https://xn--v4xmep8a-jv1ma585hgv4b.jzhtpgcsl.com/)
-* [优化线路7](https://xn--hutepwmb-5o8m61dn3ciu7d.jzhtpgcsl.com/)
-* [优化线路8](https://xn--efbwjgp3-jo1oj41cnlduu7h.jzhtpgcsl.com/)
+* [优化线路1](https://xn--3cekgrv-th6mt18ek41dm0a.shanghaibz.org/)
+* [优化线路2](https://xn--t8s694q-e73kmgs4bq03a.shanghaibz.org/)
+* [优化线路3](https://xn--dpbs3cf-4t3kw568bfbwao0a.shanghaibz.org/)
+* [优化线路4](https://xn--s8439pa-2j9la4073ia.shanghaibz.org/)
+* [优化线路5](https://xn--hyqzrt4-3w3kq09jlscx77k.jzhtpgcsl.com/)
+* [优化线路6](https://xn--c6hvjgq-gj3n17dz34hqpxc.jzhtpgcsl.com/)
+* [优化线路7](https://xn--mqb7yfd-bd6pw7c05dp82q.jzhtpgcsl.com/)
+* [优化线路8](https://xn--7ekdx5w-h30mo73et8xlf2c.jzhtpgcsl.com/)
 
 > ⚠️ **请认准本仓库发布的地址。** 如果某个地址无法访问，请尝试其他地址或等待更新。
 
