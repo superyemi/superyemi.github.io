@@ -33,14 +33,14 @@
 
 > 🇨🇳 **大陆用户可直接访问，地址会不定期更新**
 
-* [优化线路1](https://xn--stzbrnam-su8na5865ca.upperstar9.com/)
-* [优化线路2](https://xn--nk6b5zgy-zh5op1fa090d.upperstar9.com/)
-* [优化线路3](https://xn--uzbx6p3m-7f3py7h658cgk7e.upperstar9.com/)
-* [优化线路4](https://xn--9cbztarp-c49lh7o7n1ba.upperstar9.com/)
-* [优化线路5](https://xn--rtz79un5-wg0mp88btx6dbg5d.tschaichu888.com/)
-* [优化线路6](https://xn--f53h7ry9-q86nz61vvi3aba.tschaichu888.com/)
-* [优化线路7](https://xn--jr7y9nma-vt2pfmt19szpa.tschaichu888.com/)
-* [优化线路8](https://xn--u5xy97fq-4z0op6qpoai274c.tschaichu888.com/)
+* [优化线路1](https://xn--7gwbnsrayf-nz9pmmi68f12o.upperstar9.com/)
+* [优化线路2](https://xn--hbfg2d67xv-gh7qt46g1tdi30d.upperstar9.com/)
+* [优化线路3](https://xn--vj7btas9gq-xx2pii62c145a.upperstar9.com/)
+* [优化线路4](https://xn--fhc7wbyakq-wx7r213cfv6k35f.upperstar9.com/)
+* [优化线路5](https://xn--u8wbjsay5h-xx2ptfz11dtt1q.tschaichu888.com/)
+* [优化线路6](https://xn--x5gkhuyfm3-sj2pq18ae6gizc.tschaichu888.com/)
+* [优化线路7](https://xn--gzf3epwmq5-7c0q5967bnsuaur0a.tschaichu888.com/)
+* [优化线路8](https://xn--8dubsv3hzm-kc3qx66fexi1u0a.tschaichu888.com/)
 
 > ⚠️ **请认准本仓库发布的地址。** 如果某个地址无法访问，请尝试其他地址或等待更新。
 
