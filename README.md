@@ -33,14 +33,14 @@
 
 > 🇨🇳 **大陆用户可直接访问，地址会不定期更新**
 
-* [优化线路1](https://xn--endxh2aq4-4m6sy60h3pu822h.nrzyshiwu.com/)
-* [优化线路2](https://xn--pdx7nwt4e-4e6ny65y4fxayf9a.nrzyshiwu.com/)
-* [优化线路3](https://xn--agnjy68pc-kd5pv678a1p9ay6a.nrzyshiwu.com/)
-* [优化线路4](https://xn--f935gbj7v-f18ni34ka576z.nrzyshiwu.com/)
-* [优化线路5](https://xn--emn96kvs3-9u5pa2226ka.sdzhaorun.com/)
-* [优化线路6](https://xn--fe3ypbqnc-kc6nk0e333ec25k.sdzhaorun.com/)
-* [优化线路7](https://xn--gnd5jv6q7-455o340p1pmkg0f.sdzhaorun.com/)
-* [优化线路8](https://xn--3d7jyu9ew-kc6ns7e78yuo2d.sdzhaorun.com/)
+* [优化线路1](https://xn--t2g5yknfqh-cn4p25j3p6a1m3p.nrzyshiwu.com/)
+* [优化线路2](https://xn--uetm6s7bzx-xw9q607s0vca.nrzyshiwu.com/)
+* [优化线路3](https://xn--34npx9atur-3j2p68h6u1ixor.nrzyshiwu.com/)
+* [优化线路4](https://xn--urgytscbaz-pf2pq6cuy6si1ya.nrzyshiwu.com/)
+* [优化线路5](https://xn--xbm3j9dyks-xu2tl3hdr2fo49b.sdzhaorun.com/)
+* [优化线路6](https://xn--mzu5q3wjcr-1c8ri8t0kmgm7e.sdzhaorun.com/)
+* [优化线路7](https://xn--9s5ne2rf8p-gh7q627t4tya2i4e.sdzhaorun.com/)
+* [优化线路8](https://xn--s4zdunq3yx-cp4q544fnkbt23j.sdzhaorun.com/)
 
 > ⚠️ **请认准本仓库发布的地址。** 如果某个地址无法访问，请尝试其他地址或等待更新。
 
