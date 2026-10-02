@@ -33,14 +33,14 @@
 
 > 🇨🇳 **大陆用户可直接访问，地址会不定期更新**
 
-* [优化线路1](https://xn--7kdgw85rb-4u8or861bke5brff.iloveposh.net/)
-* [优化线路2](https://xn--jd7by4xte-zc3re8i9p1dvz2f.iloveposh.net/)
-* [优化线路3](https://xn--5k7h4a3py-ft8s080sfrae38v.iloveposh.net/)
-* [优化线路4](https://xn--57mta2gj6-k99pk46c4udt70i.iloveposh.net/)
-* [优化线路5](https://xn--2pu6kj87q-kc6no52m89cp74m.mihunmeimei.com/)
-* [优化线路6](https://xn--kzqyuf7ej-9n2rmns98ubra.mihunmeimei.com/)
-* [优化线路7](https://xn--4tdf7jznw-uc6n711axr1cx80k.mihunmeimei.com/)
-* [优化线路8](https://xn--3mp2tauws-pu5o15d915e0w6o.mihunmeimei.com/)
+* [优化线路1](https://xn--3p7u8jayhq-kc3qx66fexi1u0a.myyouworld.com/)
+* [优化线路2](https://xn--epyhrmqfv6-2y9vy4dv4ghvq.myyouworld.com/)
+* [优化线路3](https://xn--6p5fqu8ca4-523pq09mkxb02p.myyouworld.com/)
+* [优化线路4](https://xn--vw4qktsnd8-gh7q627t4tya2i4e.myyouworld.com/)
+* [优化线路5](https://xn--2p865dngeh-i12qi1lc08afzs.chinatuiguang.com/)
+* [优化线路6](https://xn--vpfahew8j2-2y9vy4dv4ghvq.chinatuiguang.com/)
+* [优化线路7](https://xn--q6cds8xupj-uj3wd98ai26co4c.chinatuiguang.com/)
+* [优化线路8](https://xn--6p93ntxeb8-hi1tl12u8sag34b.chinatuiguang.com/)
 
 > ⚠️ **请认准本仓库发布的地址。** 如果某个地址无法访问，请尝试其他地址或等待更新。
 
