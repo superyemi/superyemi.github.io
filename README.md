@@ -33,14 +33,14 @@
 
 > 🇨🇳 **大陆用户可直接访问，地址会不定期更新**
 
-* [优化线路1](https://xn--bnvd9fzu8-fd4om4sr78jr1xe.myyouworld.com/)
-* [优化线路2](https://xn--5u68ws9kb-pj4o469lsl2dfqua.myyouworld.com/)
-* [优化线路3](https://xn--fhbtpja8g-z45ov59ebjikxy.myyouworld.com/)
-* [优化线路4](https://xn--9wrbt35gs-422oy6t5r0a9o7d.myyouworld.com/)
-* [优化线路5](https://xn--kt5n7rep3-9f6nrsl38j38b.chinatuiguang.com/)
-* [优化线路6](https://xn--tu38s9vc5-pu5o678a6rp2y6c.chinatuiguang.com/)
-* [优化线路7](https://xn--34hvnf69s-kx1ps50dba7468i.chinatuiguang.com/)
-* [优化线路8](https://xn--5ubkjmhcn-4j9p0fp56cxa.chinatuiguang.com/)
+* [优化线路1](https://xn--kqbfrc6yeu-py9pt7lsv0awjt.myyouworld.com/)
+* [优化线路2](https://xn--3q7gewtxa4-eb5q267ix14cuc3e.myyouworld.com/)
+* [优化线路3](https://xn--87h6rmczp5-eh3rx812bgorbh9a.myyouworld.com/)
+* [优化线路4](https://xn--wu98qsejrd-v06uu92s3pvbjfs.myyouworld.com/)
+* [优化线路5](https://xn--caz53rbyts-0y9p270rn59bor7a.chinatuiguang.com/)
+* [优化线路6](https://xn--pqes9zubvy-wh2p267cfh5r2lf.chinatuiguang.com/)
+* [优化线路7](https://xn--sphqabn8ge-nk1qy13nfy4dibwa.chinatuiguang.com/)
+* [优化线路8](https://xn--kgvjerfzmb-sj2p160g083afud.chinatuiguang.com/)
 
 > ⚠️ **请认准本仓库发布的地址。** 如果某个地址无法访问，请尝试其他地址或等待更新。
 
