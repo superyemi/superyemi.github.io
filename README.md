@@ -33,14 +33,14 @@
 
 > 🇨🇳 **大陆用户可直接访问，地址会不定期更新**
 
-* [优化线路1](https://xn--bxeng2jt6-f41py52agk0db74a.zhongheshanghui.com/)
-* [优化线路2](https://xn--arctnhduv-pg5rozi31j0o5g.zhongheshanghui.com/)
-* [优化线路3](https://xn--faeyzcrgs-9c7oe80tgq9d2wg.zhongheshanghui.com/)
-* [优化线路4](https://xn--m3xyaerhp-zb0qr5o7v2hnzd.zhongheshanghui.com/)
-* [优化线路5](https://xn--epwnjk59r-zc3re8i9p1dvz2f.yimosecai.com/)
-* [优化线路6](https://xn--wz9px3k7h-uc6y765ebq1bbkm.yimosecai.com/)
-* [优化线路7](https://xn--ak2qy9udp-kn7o882hkfu8z0c.yimosecai.com/)
-* [优化线路8](https://xn--a7euwk8tx-kw8of44ra9181f.yimosecai.com/)
+* [优化线路1](https://xn--hg54f6rvjz-ws6tx265ag0p3a.zhongheshanghui.com/)
+* [优化线路2](https://xn--3cv4e7ubay-3j2pe93a2x3cok2k.zhongheshanghui.com/)
+* [优化线路3](https://xn--4356gj2ym7-3j2pe93a2x3cok2k.zhongheshanghui.com/)
+* [优化线路4](https://xn--5bjme64dpq-sd9t694scl8c9zua.zhongheshanghui.com/)
+* [优化线路5](https://xn--58kbhr7u9n-wx7rt8zfkumm0f.yimosecai.com/)
+* [优化线路6](https://xn--xzbrudvqym-eo3ph16jc6hp60a.yimosecai.com/)
+* [优化线路7](https://xn--ec6xqgymjb-pf2pi25mc20lu7a.yimosecai.com/)
+* [优化线路8](https://xn--ex3pmzu47n-nz9pmmi68f12o.yimosecai.com/)
 
 > ⚠️ **请认准本仓库发布的地址。** 如果某个地址无法访问，请尝试其他地址或等待更新。
 
