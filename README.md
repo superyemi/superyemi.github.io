@@ -33,14 +33,14 @@
 
 > 🇨🇳 **大陆用户可直接访问，地址会不定期更新**
 
-* [优化线路1](https://xn--s7myb9vxkr-ez4ql12ic3vhn4c.zhongheshanghui.com/)
-* [优化线路2](https://xn--z6rfwdnpex-5w8re1q1v6ho9d.zhongheshanghui.com/)
-* [优化线路3](https://xn--fqr96ck47a-673p515bjvbv725b.zhongheshanghui.com/)
-* [优化线路4](https://xn--qfzxmghr4t-1c8ri8t0kmgm7e.zhongheshanghui.com/)
-* [优化线路5](https://xn--u7pcxqrket-qn6px9q0x3pmcnb.yimosecai.com/)
-* [优化线路6](https://xn--x4uq3ftdcy-1v2p59a3138a36qd.yimosecai.com/)
-* [优化线路7](https://xn--a8fbp6y9cv-0y9p66vzw1ail2e.yimosecai.com/)
-* [优化线路8](https://xn--uedaxnbyf3-c99u792tusa827x.yimosecai.com/)
+* [优化线路1](https://xn--hse3z26ak9-gh7q624bd28g8ib.51lantian.org/)
+* [优化线路2](https://xn--479csxzka6-lu6u01lm51h2b5c.51lantian.org/)
+* [优化线路3](https://xn--vc73sqewh9-r82tq8jdq3dbg4f.51lantian.org/)
+* [优化线路4](https://xn--3arqnytxcg-7q3px44j5cbb225b.51lantian.org/)
+* [优化线路5](https://xn--rabu4evwx5-7q3pu80f3f1eftc.xiangguogw.com/)
+* [优化线路6](https://xn--xgm75ezk4h-sj2pl6elv5e3y5l.xiangguogw.com/)
+* [优化线路7](https://xn--yqzdksj3ta-wh2p267cfh5r2lf.xiangguogw.com/)
+* [优化线路8](https://xn--2ubfksejyx-d72py690a4k3ann9g.xiangguogw.com/)
 
 > ⚠️ **请认准本仓库发布的地址。** 如果某个地址无法访问，请尝试其他地址或等待更新。
 
