@@ -33,14 +33,14 @@
 
 > 🇨🇳 **大陆用户可直接访问，地址会不定期更新**
 
-* [优化线路1](https://xn--zu723dsxw-kc6n915rgcvddtd.51lantian.org/)
-* [优化线路2](https://xn--nuqmcd3rh-k99pk46c4udn72v.51lantian.org/)
-* [优化线路3](https://xn--urgfed782-ud3ov99lziiwx4p.51lantian.org/)
-* [优化线路4](https://xn--vnus96wfc-kc6nt8p772ba.51lantian.org/)
-* [优化线路5](https://xn--nd5jzpurk-pg5r839ht8d77i.xiangguogw.com/)
-* [优化线路6](https://xn--fpetjr5hy-pi3rh1u9rk1lb.xiangguogw.com/)
-* [优化线路7](https://xn--6mek4y9ax-zc9tw8uv72aglh.xiangguogw.com/)
-* [优化线路8](https://xn--xecpbvh6w-uc6ni0hy82hegq.xiangguogw.com/)
+* [优化线路1](https://xn--8u63js4rzn-ix4q509e2fcwtw.nanjingyy.com/)
+* [优化线路2](https://xn--zhevxkf6b4-i12qe4nn4sqn3a.nanjingyy.com/)
+* [优化线路3](https://xn--86f4zvbgmx-eh3rx812bgorbh9a.nanjingyy.com/)
+* [优化线路4](https://xn--maprgkcqd8-y95q163jr1a89m.nanjingyy.com/)
+* [优化线路5](https://xn--y9ktuvxw87-0t8rp78pj22c8kwb.hengdaqcjy.com/)
+* [优化线路6](https://xn--gkxpauydzh-mm2p9501apdza8y9a.hengdaqcjy.com/)
+* [优化线路7](https://xn--7za8runmth-q99sm98mq92a9sr.hengdaqcjy.com/)
+* [优化线路8](https://xn--vhedux4gq2-2y9vy4dv4ghvq.hengdaqcjy.com/)
 
 > ⚠️ **请认准本仓库发布的地址。** 如果某个地址无法访问，请尝试其他地址或等待更新。
 
