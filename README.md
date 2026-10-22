@@ -33,14 +33,14 @@
 
 > 🇨🇳 **大陆用户可直接访问，地址会不定期更新**
 
-* [优化线路1](https://xn--m96et4azn-9e7o691cupgm6y.nanjingyy.com/)
-* [优化线路2](https://xn--ym584dbwk-z45og8ggu7csg5h.nanjingyy.com/)
-* [优化线路3](https://xn--aby2vtqw9-9p6ne96cw82c1k8i.nanjingyy.com/)
-* [优化线路4](https://xn--pfakdgncw-k99pk46c4udt70i.nanjingyy.com/)
-* [优化线路5](https://xn--ycqsfh3jv-px4u746ktiau91a.hengdaqcjy.com/)
-* [优化线路6](https://xn--hbf73agc4-u46pa6460da.hengdaqcjy.com/)
-* [优化线路7](https://xn--cbnkgs4yu-947rx35pa8182f.hengdaqcjy.com/)
-* [优化线路8](https://xn--rhfcnsw79-uc6ni0hy82hegq.hengdaqcjy.com/)
+* [优化线路1](https://xn--ek54xcmd-op4q913pt34astp.nanjingyy.com/)
+* [优化线路2](https://xn--han8bf4d-929mu49geo6h3uza.nanjingyy.com/)
+* [优化线路3](https://xn--avh5ytm4-vt2pfmt19szpa.nanjingyy.com/)
+* [优化线路4](https://xn--j5p7k8ua-y84qw85kh9qs8n.nanjingyy.com/)
+* [优化线路5](https://xn--yr2xj94z-cg1nt95pa1165e.hengdaqcjy.com/)
+* [优化线路6](https://xn--ap78mxke-tp1o49meq4gmpd.hengdaqcjy.com/)
+* [优化线路7](https://xn--w5pz6t2b-wg0mze004clz4n.hengdaqcjy.com/)
+* [优化线路8](https://xn--wpkqde76-bf1nm8tuu9aky1a.hengdaqcjy.com/)
 
 > ⚠️ **请认准本仓库发布的地址。** 如果某个地址无法访问，请尝试其他地址或等待更新。
 
