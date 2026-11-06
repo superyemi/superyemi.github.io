@@ -33,14 +33,14 @@
 
 > 🇨🇳 **大陆用户可直接访问，地址会不定期更新**
 
-* [优化线路1](https://xn--cxp7thbv8r-io2pe01cg80dgda.bjhengsheng.net/)
-* [优化线路2](https://xn--ytnbdw32fk-e12p996fvwfoq1v.bjhengsheng.net/)
-* [优化线路3](https://xn--xc74phjrnk-io2pm44asu9abp7l.bjhengsheng.net/)
-* [优化线路4](https://xn--txqr5nsjwk-sj2p958qtpbex4l.bjhengsheng.net/)
-* [优化线路5](https://xn--usghpa2czt-922pl6hjyve3q.jindong-china.com/)
-* [优化线路6](https://xn--hfb2qtvms7-sj2pl830bsfbn27r.jindong-china.com/)
-* [优化线路7](https://xn--4dtqwxbs3a-mm5se72m6b1c0f3d.jindong-china.com/)
-* [优化线路8](https://xn--nd5pmz9hv8-gh2wk8g81cn4g.jindong-china.com/)
+* [优化线路1](https://xn--v7sg9b5jka-jc6q928bgg1b8l1j.bjhengsheng.net/)
+* [优化线路2](https://xn--qe5mu4wy83-y77rh23x4oa16x.bjhengsheng.net/)
+* [优化线路3](https://xn--wysn3gmbtc-du4q6259bfmbb27p.bjhengsheng.net/)
+* [优化线路4](https://xn--3285dvbs6a-he0qm3nuz3c6b8c.bjhengsheng.net/)
+* [优化线路5](https://xn--fkah8qzu2b-rs1vp17cw6ap000a.jindong-china.com/)
+* [优化线路6](https://xn--ysjdrg5x74-257rt10dsw2m8htb.jindong-china.com/)
+* [优化线路7](https://xn--gzhk3uysja-6w4q969ia8824f.jindong-china.com/)
+* [优化线路8](https://xn--vfm2kb8e5w-wj3r61ozq6bbzj.jindong-china.com/)
 
 > ⚠️ **请认准本仓库发布的地址。** 如果某个地址无法访问，请尝试其他地址或等待更新。
 
