@@ -33,14 +33,14 @@
 
 > 🇨🇳 **大陆用户可直接访问，地址会不定期更新**
 
-* [优化线路1](https://xn--fpxybj9cq5ue-rz7wn80f9r9dni7f.taobaoyoumaia.com/)
-* [优化线路2](https://xn--aktm9pzxdnhv-ll11a990wj7rw4n.taobaoyoumaia.com/)
-* [优化线路3](https://xn--kjgftxn8zmwd-ft4sy239c74takhg.taobaoyoumaia.com/)
-* [优化线路4](https://xn--abhk5ynct8qm-r80u876clm1wa.taobaoyoumaia.com/)
-* [优化线路5](https://xn--ueybw8achnm7-ik7td18b9o3f1stc.otter-garments.com/)
-* [优化线路6](https://xn--3bqrnfz9xwu6-yh5un5onyiky1f.otter-garments.com/)
-* [优化线路7](https://xn--sjbw8vpucf9z-9c6ss45pz9tin5p.otter-garments.com/)
-* [优化线路8](https://xn--9s4yhun6ad5w-0v4s927cu00n8uub.otter-garments.com/)
+* [优化线路1](https://xn--a3sy5k4mjdhu-jm5tm10qooyeogza.taobaoyoumaia.com/)
+* [优化线路2](https://xn--q7wcpfxvrk84-zq5t7294ce4scba.taobaoyoumaia.com/)
+* [优化线路3](https://xn--bz9tmu57qd2p-jz5tf24ff35cc3yi.taobaoyoumaia.com/)
+* [优化线路4](https://xn--un29d6wt4rjz-sq3tv92ulq0eewb.taobaoyoumaia.com/)
+* [优化线路5](https://xn--ag8dfem9t4qu-9l5sm1e4x2j87i.otter-garments.com/)
+* [优化线路6](https://xn--embp7a8xkrdh-e80uk68jxb2bnh0d.otter-garments.com/)
+* [优化线路7](https://xn--7gmev536r2zd-vv0tx13r8w9buw8e.otter-garments.com/)
+* [优化线路8](https://xn--8p76ftdukh5n-ft4swfojq711f.otter-garments.com/)
 
 > ⚠️ **请认准本仓库发布的地址。** 如果某个地址无法访问，请尝试其他地址或等待更新。
 
