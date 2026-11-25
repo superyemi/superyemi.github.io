@@ -33,14 +33,14 @@
 
 > 🇨🇳 **大陆用户可直接访问，地址会不定期更新**
 
-* [优化线路1](https://xn--wvr42gb7u6hm-cc7tl0fj88eir6p.taobaoyoumaia.com/)
-* [优化线路2](https://xn--pwuz3d2b5myn-8x4s470xiu5dzme.taobaoyoumaia.com/)
-* [优化线路3](https://xn--y6nkfrqm4gpe-7q8sk7ip48b303a.taobaoyoumaia.com/)
-* [优化线路4](https://xn--57hkmjwb38rc-8x4sw21s2p7f9eub.taobaoyoumaia.com/)
-* [优化线路5](https://xn--3trh98wfm7pk-b22xv1bj25cw44e.otter-garments.com/)
-* [优化线路6](https://xn--pcvykwun6gxr-bv60a8717aqt8azkr.otter-garments.com/)
-* [优化线路7](https://xn--5c7fe6yzg3x4-bk7ya7219ba.otter-garments.com/)
-* [优化线路8](https://xn--6ner2fhw9gv7-224sa217ja.otter-garments.com/)
+* [优化线路1](https://xn--dq8fs2xhc6vp-4o8ut97ned3fc1wc.solar-lfwh.com/)
+* [优化线路2](https://xn--2y4ngtwbz9re-960uv35qdq7edlzb.solar-lfwh.com/)
+* [优化线路3](https://xn--cvb39xwmtar6-9e2xg1xl6o7qg.solar-lfwh.com/)
+* [优化线路4](https://xn--fqgx8v24ukty-hw8yg5az717bstg.solar-lfwh.com/)
+* [优化线路5](https://xn--9hdn5c327bsm-qk5zg1cky2hkm2h.dongsengames.net/)
+* [优化线路6](https://xn--tyq3fgjbaerk-8x4sl60rb04bix6a.dongsengames.net/)
+* [优化线路7](https://xn--kvu6xyt45df8-sq3tt74uvc3bksa.dongsengames.net/)
+* [优化线路8](https://xn--knwg4h9dex8t-4o8ut97ned3fc1wc.dongsengames.net/)
 
 > ⚠️ **请认准本仓库发布的地址。** 如果某个地址无法访问，请尝试其他地址或等待更新。
 
