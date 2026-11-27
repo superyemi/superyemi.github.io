@@ -33,14 +33,14 @@
 
 > 🇨🇳 **大陆用户可直接访问，地址会不定期更新**
 
-* [优化线路1](https://xn--ac9ktzr3wfu-9q3s449ph96ay54j.solar-lfwh.com/)
-* [优化线路2](https://xn--kfxts7undp9-yo8qi45wouycvdzd.solar-lfwh.com/)
-* [优化线路3](https://xn--87dshvk4ac2-j56rt2wu34aoj2h.solar-lfwh.com/)
-* [优化线路4](https://xn--kz9pg2bqund-798qo14gb1fzp8w.solar-lfwh.com/)
-* [优化线路5](https://xn--y6t5udjfhv4-800r192kmqzfec5c.dongsengames.net/)
-* [优化线路6](https://xn--5dshu32qetk-yo8qv47vuyde91p.dongsengames.net/)
-* [优化线路7](https://xn--6dmp5ay7hvj-lc9qv79kg8jbu0a.dongsengames.net/)
-* [优化线路8](https://xn--ujq45vt9pnr-hp8t085vm45bqu0d.dongsengames.net/)
+* [优化线路1](https://xn--hdszrm7yw6b4-ml6x143cgf3bvys.solar-lfwh.com/)
+* [优化线路2](https://xn--jz92c3umsgrx-s05v5310d9faa.solar-lfwh.com/)
+* [优化线路3](https://xn--zyv4c263wfne-re5w959hd70cg03e.solar-lfwh.com/)
+* [优化线路4](https://xn--v7xk5jfyzc64-w60un275akpcnr5e.solar-lfwh.com/)
+* [优化线路5](https://xn--47cqvej9fgkx-dg2us48fjn0gkx1e.dongsengames.net/)
+* [优化线路6](https://xn--urpm8zt23k97-bv60a22mpy7gnl5d.dongsengames.net/)
+* [优化线路7](https://xn--tfq9cdkvhgn7-ft4si81pnh5ank0b.dongsengames.net/)
+* [优化线路8](https://xn--xedq6anc7t4v-mx0u379rxea62b.dongsengames.net/)
 
 > ⚠️ **请认准本仓库发布的地址。** 如果某个地址无法访问，请尝试其他地址或等待更新。
 
